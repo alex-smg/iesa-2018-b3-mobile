@@ -1,2 +1,2 @@
 # iesa-2018-b3-mobile
-bonjour salut
+On a oublié de parler de nos amis les calamars... sublime petite saucisse volante !
